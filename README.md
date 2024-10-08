@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **DSA,CP,FrontEnd**
 
-- 📫 How to reach me **s.n.sharma0714@gmail.com**
+- 📫 How to reach me **1ep23is161@eastpoint.ac.in**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
